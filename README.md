@@ -14,7 +14,7 @@ ou simplement par mail : <a href="lambomarieclaire@yahoo.fr">lambomarieclaire@ya
 
 Bonne journéeeeee 🫶🏾 
 
-Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲).
+Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲) voilà bisous
 
 <img src="img/giphy.gif" width=180px>
 
