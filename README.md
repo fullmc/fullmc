@@ -2,17 +2,17 @@
 
 📚 Étudiante en Prépa digitale pour intégrer un **Master Développement fullstack** à l'<img src="img/footer-iim.png" width=30px>   
 
-👩🏾‍💻 J'aime bien coder et apprendre de nouvelles choses .<br/> 
-Bon pour l'instant on est juste sur du basic <img src="img/logos.png" width=40px> mais j'ai hâte de découvrir d'autres langages !!
+J'aime :
+* 👩🏾‍💻 coder (bon pour l'instant on est juste sur du basic <img src="img/logos.png" width=40px> mais ça arrive)
+* 💡 apprendre de nouvelles choses
+* et par dessus tout, voyager 😃 Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲) .
 
-Sinon j'ai une passion pour le True Crime 💕 Que ce soit en livres, documentaires, séries, jeux etc.
+Sinon j'ai aussi une passion pour le True Crime 💕 Que ce soit en livres, documentaires, séries, jeux etc.
 
-Vous pouvez me contacter sur : <br/>
-<a href="https://www.linkedin.com/in/marie-claire-lambo-0838a917b/"><img src="img/174857.png" width=20px></a> <br/>
-<a href="https://www.instagram.com/_mtothec/"><img src="img/insta.png" width=25px></a><br/>
-ou simplement par mail : <a href="lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;))
-
-Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲)
+Vous pouvez me contacter sur : <br/><br/>
+<a href="https://www.linkedin.com/in/marie-claire-lambo-0838a917b/"><img src="img/174857.png" width=20px></a> Linkedin <br/>
+<a href="https://www.instagram.com/_mtothec/"><img src="img/insta.png" width=25px></a> Instagram <br/><br/>
+ou par mail 📩 : <a href="lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;)
 
 Bonne journéeeeee 🫶🏾 
 
