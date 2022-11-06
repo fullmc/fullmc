@@ -17,7 +17,7 @@ Bonne journéeeeee 😁
 
 Ah aussi !! J'adore voyager 😃. Peu importe où je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲).
 
-<img src="img/giphy.gif" width=180px;>
+<img src="img/giphy.gif" width=180px>
 
 <!--
 **fullmc/fullmc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
