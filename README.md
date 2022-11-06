@@ -5,7 +5,7 @@
 J'aime :
 * 👩🏾‍💻 coder (bon pour l'instant on est juste sur du basic <img src="img/logos.png" width=40px> mais ça arrive)
 * 💡 apprendre de nouvelles choses
-* et par dessus tout, voyager 😃 Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲) .
+* 🗺 voyager : peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲) .
 
 Sinon j'ai aussi une passion pour le True Crime 💕 Que ce soit en livres, documentaires, séries, jeux etc.
 
