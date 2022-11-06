@@ -12,9 +12,9 @@ Vous pouvez me contacter sur : <br/>
 <a href="https://www.instagram.com/_mtothec/"><img src="img/insta.png" width=25px></a><br/>
 ou simplement par mail : <a href="lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;))
 
-Bonne journéeeeee 🫶🏾 
+Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲)
 
-Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲) voilà bisous
+Bonne journéeeeee 🫶🏾 
 
 <img src="img/giphy.gif" width=180px>
 
