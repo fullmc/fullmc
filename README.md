@@ -1,21 +1,20 @@
-### Salut c'est mc :)) <br/>
+## Salut c'est mc 🤗
 
+📚 Étudiante en Prépa digitale pour intégrer un **Master Développement fullstack** à l'<img src="img/footer-iim.png" width=30px>   
 
-Je suis étudiante en Prépa digitale pour intégrer un **Master Développement fullstack** à l'<img src="img/footer-iim.png" width=30px>   
-
-J'aime bien coder et apprendre de nouvelles choses .<br/> 
+👩🏾‍💻 J'aime bien coder et apprendre de nouvelles choses .<br/> 
 Bon pour l'instant on est juste sur du basic <img src="img/logos.png" width=40px> mais j'ai hâte de découvrir d'autres langages !!
 
-Sinon j'ai une passion pour le True Crime. Que ce soit en livres, documentaires, séries, etc.
+Sinon j'ai une passion pour le True Crime 💕 Que ce soit en livres, documentaires, séries, jeux etc.
 
 Vous pouvez me contacter sur : <br/>
 <a href="https://www.linkedin.com/in/marie-claire-lambo-0838a917b/"><img src="img/174857.png" width=20px></a> <br/>
 <a href="https://www.instagram.com/_mtothec/"><img src="img/insta.png" width=25px></a><br/>
 ou simplement par mail : <a href="lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;))
 
-Bonne journéeeeee 😁 
+Bonne journéeeeee 🫶🏾 
 
-Ah aussi !! J'adore voyager 😃. Peu importe où je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲).
+Ah aussi !! J'adore voyager 😃. Peu importe où, je suis toujours partante. Sauf en Australie (je suis arachnophobe🥲).
 
 <img src="img/giphy.gif" width=180px>
 
