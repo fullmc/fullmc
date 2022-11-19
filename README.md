@@ -12,7 +12,7 @@ Sinon j'ai aussi une passion pour le True Crime 💕 Que ce soit en livres, docu
 Vous pouvez me contacter sur : <br/><br/>
 <a href="https://www.linkedin.com/in/marie-claire-lambo-0838a917b/"><img src="img/174857.png" width=20px></a> Linkedin <br/>
 <a href="https://www.instagram.com/_mtothec/"><img src="img/insta.png" width=25px></a> Instagram <br/><br/>
-ou par mail 📩 : <a href = "mailto.lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;)
+ou par mail 📩 : <a href="mailto:lambomarieclaire@yahoo.fr">lambomarieclaire@yahoo.fr</a> ;)
 
 Bonne journéeeeee 🫶🏾 
 
